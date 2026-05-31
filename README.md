@@ -36,7 +36,7 @@ Hesabınıza ait verilerin silinmesini talep etmek için aşağıdaki e-posta ad
 Bu politika zaman zaman güncellenebilir. Değişiklikler bu sayfada yayınlanacak ve "Son güncelleme" tarihi güncellenecektir.
 
 Gizlilik politikamız hakkında sorularınız için:
-recepaliabis@gmail.com
+erw.ays.inc@gmail.com
 
 English
 Privacy Policy
@@ -75,4 +75,4 @@ To request deletion of your account data, please contact us at the email address
 This policy may be updated from time to time. Changes will be posted on this page and the "Last updated" date will be revised accordingly.
 
 For questions about this privacy policy:
-recepaliabis@gmail.com
+erw.ays.inc@gmail.com
